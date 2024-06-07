@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... not decided yet
 - 📫 How to reach me ...MY EMAIL-
 - 😄 Pronouns: ... SHE/HER
-- ⚡ Fun fact: ... I M NOT EVEN 15 YO T-T
+- ⚡ Fun fact: ... I M NOT EVEN 15 YO ;)
 
 <!---
 Knight130311/Knight130311 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
