@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Knight130311
-- 👀 I’m interested in ... CODING, WRITING AND ANYTHING
+- 👋 Hi, I’m @xORose11
+- 👀 I’m interested in ... CODING, WRITING AND EXPLORING
 - 🌱 I’m currently learning ... TO GROW AND WORK ON THOSE INTRIGUING SKILL SETS APART FROM SCHOOL STUFF
 - 💞️ I’m looking to collaborate on ... not decided yet
 - 📫 How to reach me ...MY EMAIL-
